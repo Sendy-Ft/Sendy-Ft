@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Sendy-Ft
+- 👀 I'm New Bies
